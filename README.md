@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Haval-hub
+- 👋 Hi, I’m Haval Omer
 - 👀 I’m interested in programming , I am an 
 Electrical and Computer Engineer 
 - 🌱 I’m currently studying Electrical and 
